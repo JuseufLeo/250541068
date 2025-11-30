@@ -1,1 +1,2 @@
 Merhabalar. Ben Fırat Üniversitesi Teknoloji Fakültesi Yazılım Mühendisliği 1.sınıf 250541068 No lu öğrencisi Yusuf Aslan. Oryantasyon dersi Vize Ödevi kapsamında yapmış olduğum videonun linkini aşağıya bırakıyorum.
+https://youtu.be/ZLOne3kecmk
